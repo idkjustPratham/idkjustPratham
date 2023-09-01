@@ -1,7 +1,7 @@
 [![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://rishavchanda.io)
 <h1 align="center">Hi 👋, I'm Pratham</h1>
 <h3 align="center">I'd be more frightened by not using whatever abilities I'd been given. I'd be more frightened by procrastination and laziness. - Denzel Washington</h3>
-<img align="right" alt="trade" width="300" src="https://media1.giphy.com/media/xThtatVgZVprKd3UEU/giphy.gif?cid=ecf05e47v5iocdyv5mtn2det9que47p58ae03od5ftrlmy6i&ep=v1_gifs_search&rid=giphy.gif&ct=g">
+<img align="right" alt="trade" width="100" src="https://media1.giphy.com/media/xThtatVgZVprKd3UEU/giphy.gif?cid=ecf05e47v5iocdyv5mtn2det9que47p58ae03od5ftrlmy6i&ep=v1_gifs_search&rid=giphy.gif&ct=g">
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=idkjustpratham&label=Profile%20views&color=0e75b6&style=flat" alt="idkjustpratham" /> </p>
 
