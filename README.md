@@ -1,4 +1,4 @@
-[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://rishavchanda.io)
+
 <h1 align="center">Hi 👋, I'm Pratham</h1>
 <h3 align="center">I'd be more frightened by not using whatever abilities I'd been given. I'd be more frightened by procrastination and laziness. - Denzel Washington</h3>
 <img align="right" alt="trade" width="150" src="https://media1.giphy.com/media/xThtatVgZVprKd3UEU/giphy.gif?cid=ecf05e47v5iocdyv5mtn2det9que47p58ae03od5ftrlmy6i&ep=v1_gifs_search&rid=giphy.gif&ct=g">
